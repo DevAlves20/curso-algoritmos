@@ -1,1 +1,1 @@
-# Aqui tem tudo aquilo que foi me ensinado no curso
+# Todas as coisas que eu aprendi no curso, está aqui.
